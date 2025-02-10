@@ -2,4 +2,4 @@
 Aula 06 => 05/02/2025
 Aula 07 => 10/02/2025
 
-Novas Atividades
+Novas Atividades para hoje
