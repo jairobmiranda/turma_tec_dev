@@ -4,3 +4,5 @@ Aula 07 => 10/02/2025
 
 Novas Atividades para hoje
 Atividade Final
+
+Vai ter prova hoje
